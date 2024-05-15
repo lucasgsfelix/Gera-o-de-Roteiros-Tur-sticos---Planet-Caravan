@@ -1,0 +1,1 @@
+# Gera-o-de-Roteiros-Tur-sticos---Planet-Caravan
